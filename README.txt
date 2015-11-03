@@ -1,3 +1,3 @@
-Hello Dur1, just keep me going i believe in you boy. 	
-!DOCTYPE
-haha HAHA HAHAHAHAHAAHAHAHAHAHAHAHA
+ 
+Hellodera Sur, just keep it going i'm believe in you boy.  
+ 
