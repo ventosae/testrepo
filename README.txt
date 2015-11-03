@@ -1,3 +1,3 @@
-Hello Sur, just keep it going i believe in you boy.	
+Hellodera Sur, just keep it going me believe in you boy. Are u !DOCTYPE or now. ^&*()_	
 
-haha HAHA
+haha HA!HA!
